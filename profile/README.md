@@ -1,4 +1,7 @@
 ## Tuin Technologies Pvt. Ltd. 👋
+###### Belive on You
+
+### It is an Information Technology Company base on Gaindakot, Nawalpur District, Gandaki Province, Nepal 
 
 <!--
 
